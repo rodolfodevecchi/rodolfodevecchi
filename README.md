@@ -1,1 +1,1 @@
-### Hi there, Good Person here! 👋
+### Hi there! 👋
